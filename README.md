@@ -1,1 +1,1 @@
-time for a run!
+time for a stretch
